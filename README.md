@@ -136,5 +136,5 @@
 ⭐ If you love how The Zone looks with these textures
 🎮 Share with fellow stalkers seeking better visuals
 
-**LATEST VERSION**: December 2025 – All textures updated & optimized
+
 </div>
